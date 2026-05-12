@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Strong for macOS script with top Strong for macOS Script | workout-tracking + goal-setting. Featuring workout-tracking and goal-setting, it's the best choice for
 
 
 
